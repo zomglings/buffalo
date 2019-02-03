@@ -1,2 +1,3 @@
 # buffalo
-Buffalo from thin air
+
+Buffalotypical ideas for the sick and twisted.
